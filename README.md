@@ -4,7 +4,7 @@
 
 My name is Sean Harrell and I'm a Jr. Software Engineer with perseverance, excellent communication skills, and a passion for creativity seeking to become an asset by learning and applying new technologies within a collaborative team-environment.
 
-🌱 I'm currently developing my skills, seeking opportunities, and looking to collaborate with other fellow coders! 🚀 ✨
+🌱 I'm currently developing my skills, seeking opportunities, and looking to collaborate with other fellow coders! 👫 🚀 ✨
 
 
 
